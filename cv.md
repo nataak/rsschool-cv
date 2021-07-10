@@ -8,9 +8,9 @@ nataak848@gmail.com
 
 ***
 *Skills:*
-  *HTML (basic)
-  *CSS (basic)
-  *JS (basic)
+  * HTML (basic)
+  * CSS (basic)
+  * JS (basic)
   
   ***
 *Work experience:*
