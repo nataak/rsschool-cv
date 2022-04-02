@@ -6,6 +6,7 @@
 
 ### ***Contact:*** 
 [Email: nataak848@gmail.com]("nataak848@gmail.com")
+[linkedin: https://www.linkedin.com/in/nata-andreeva-kakabadze-428132183/]("https://www.linkedin.com/in/nata-andreeva-kakabadze-428132183/")
 
 ### ***Work Expirience:***
 
